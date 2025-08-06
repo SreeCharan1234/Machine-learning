@@ -1,3 +1,6 @@
 # Machine-learning
 learning machine learnign
-this the update   ok  ..
+th  
+dfasdf asd
+A sdf asd
+F ased is the update   ok  ..
