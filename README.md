@@ -1,3 +1,3 @@
 # Machine-learning
 learning machine learnign
-this the update 
+this the update   ok  ..
